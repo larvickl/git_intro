@@ -1,1 +1,2 @@
 Lindsey Larvick
+larvickl@oregonstate.edu
